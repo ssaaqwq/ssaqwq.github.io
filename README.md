@@ -16,6 +16,9 @@
 win10:https://win11.blueedge.me
 
 
+三星S8+优化：https://www.123pan.com/s/4wh8Vv-4mKbd.html
+
+
 B站账号:陨石坠落的刘畅
 
 
